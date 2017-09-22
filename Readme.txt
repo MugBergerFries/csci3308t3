@@ -1,2 +1,2 @@
-Sam Berger and Kevin Kirk
+Sam Berger and Tevin Tirk
 Lab 3
